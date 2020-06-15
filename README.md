@@ -2,7 +2,7 @@
 
 > 2019-Aug-10
 
-All 5 projects finished and I am working on written prolems for the coming final.
+All 5 projects finished and I am working on written problems for the coming final.
 
 This is an unforgettable course that I really suffered but harvested.
 
